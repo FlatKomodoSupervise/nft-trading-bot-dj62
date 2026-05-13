@@ -1,4 +1,4 @@
-# 
+# ultimate nft trading bot | snipe-list-management + bulk-purchases is the best nft trading bot, featuring snipe-list-management and bulk-purchases. Fast, smart, and optimized for
 
 
 
